@@ -1,6 +1,6 @@
 <h1>Greetings...</h1>
 - 👋 Hi, I’m @KevinKurian7<br>
-- 👀 I’m interested in Coding<br>
+- 👀 I Love Coding<br>
 - 🌱 I’m currently a student pursuing Btechin Information Technology<br>
 - 💞️ I’m looking for internships from which i can learn and apply new technologies<br>
 - 📫 mail me at kevinthahathil@gmail.com or DM me on https://www.instagram.com/kevin_appus/ instagram
