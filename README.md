@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kevinthatathil@gmail.com**
 
-- ⚡ Fun fact **I am 6ft**
+- ⚡ Fun fact **I can do a backflip**
 
 
 
